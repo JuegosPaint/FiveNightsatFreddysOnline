@@ -1,2 +1,0 @@
-# FiveNightsatFreddysOnline
-FiveNightsatFreddysOnline 
